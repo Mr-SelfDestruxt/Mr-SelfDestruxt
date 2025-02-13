@@ -1,5 +1,4 @@
-I like watching people freak out on this game lol hiii
-<br>
+I just cause chaos while using british slang cause why not innt jst fun to watch people to freak out
 <br>
 [@ my spotify](https://open.spotify.com/user/hev106?si=8uaEHKOEQ-GOd9c6P-VtpQ)
 <br>
