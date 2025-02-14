@@ -1,6 +1,5 @@
-I just cause chaos while using british slang cause why not innt jst fun to watch people to freak out
-<br>
-[@ my spotify](https://open.spotify.com/user/hev106?si=8uaEHKOEQ-GOd9c6P-VtpQ)
+
+[currently playing on spotify](https://open.spotify.com/user/hev106?si=8uaEHKOEQ-GOd9c6P-VtpQ)
 <br>
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hev106&cover_image=true&theme=novatorem&show_offline=true&background_color=000b1a&interchange=false&bar_color=bd3a7c&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <!--
