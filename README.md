@@ -2,8 +2,7 @@
 [currently playing on spotify](https://open.spotify.com/user/hev106?si=8uaEHKOEQ-GOd9c6P-VtpQ)
 <br>
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hev106&cover_image=true&theme=novatorem&show_offline=true&background_color=000b1a&interchange=false&bar_color=401E31&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-<h1 align="center">
-<a href="https://tamanotchi.world/20658c"><img src="https://i.postimg.cc/2ygKgD8Q/img2.png" alt=""></a> 
+
 
 
 <!--
