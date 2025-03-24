@@ -3,7 +3,7 @@
 <br>
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hev106&cover_image=true&theme=novatorem&show_offline=true&background_color=000b1a&interchange=false&bar_color=401E31&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-if your an ex-friend victimblamer, DNI.
+if your an ex-friends victimblamers, DNI.
 
 <!--
 **Mr-SelfDestruxt/Mr-SelfDestruxt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
